@@ -1,2 +1,2 @@
-Hi There :grinning_face:
+Hi There 😀
 I'm here to learn something new
